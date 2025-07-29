@@ -1,4 +1,4 @@
-hello!! my name is vide, i am seventeen years old, i speak from brazil 👽 my pronouns are she or **him** ‎ ‎   𝜗ৎ  
+hello!! my name is vide, i am eighteen years old, i speak from brazil 👽 my pronouns are she or **him** ‎ ‎   𝜗ৎ  
 **i am autistic and may also have other kinds of diagnosis**   ˙ . ꒷ 🍰 . 𖦹˙—  
 
 i like many things such as **red dead redemption**, call of duty, my little pony, jujutsu kaisen, haikyuu, **mouthwashing**, animal jam, and other stuff
