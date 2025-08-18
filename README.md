@@ -1,19 +1,9 @@
-hello!! my name is zare, i am eighteen years old, i speak from brazil 👽 my pronouns are **him** ‎ ‎   𝜗ৎ  
-**i am autistic and may also have other kinds of diagnosis**  (npd / bpd) ˙ . ꒷ 🍰 . 𖦹˙—  
+.☘︎ ݁ **hello** ! my name is vide, you can also call me ed or danny, i am from brazil — **i am autistic and am eighteen years old** 👾
 
-i like many things such as **red dead redemption**, call of duty, my little pony, jujutsu kaisen, haikyuu, **mouthwashing**, animal jam, and other stuff
-‎ ‎ ‎ ‎ ‎ ‎ ‎ .𖥔 ݁ ˖‎ ‎ __interests in bold letters are my current fixations at the moment__ ‎ ‎ ‎ ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶ 
+.☘︎ ݁ i am always near docks, the bakery, and even where the jjk or homestuck area may be, — you are always free to interact and i am always open to make new friends, also id really love it if anyone would send any kinds of gimmicks to my strawpage, i will respond all of them as long as its appropriate! 💤
 
-i kindly ask that **no** pro/darkshippers interact with me, i don't feel very comfortable, and i also **don't enjoy getting into any kind of discourse regarding this topic.** it's very tiring  ~~--~~ (｡- .•)
+**⿻ my dni list consists of the general criteria, no bigotry and yadda yadda — be nice and i will be nice back, be mean and youre just getting ignored or whatever** 😙
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ you can cuddle with me freely, though most of the time **i might be offtab**, so i recommend if you need to tell me anything, **you tell me in whispers** ㅤ_ ♡
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ you can always find me near the bakery or under the market, where the jujutsu kaisen area may be !!ㅤ ⋆🐾°
+.☘︎ ݁ i like **homestuck**, **red dead redemption**, watchin movies (i love horror), animal jam, dead by daylight, naruto, and satoru gojo from jujutsu kaisen 🙈🙈
 
-꒰ঌ ໒꒱ㅤㅤㅤㅤ![](https://i.pinimg.com/736x/2d/1e/2f/2d1e2f624c40219a174122ccec11a869.jpg)  
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**other socials**ㅤ;
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤⓘㅤdiscord : katanabro__ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤⓘㅤanimal jam : øllioz
-
-
-![](https://i.pinimg.com/1200x/f6/98/b9/f698b9e937942833752595a7f18d598d.jpg) ty for reading!!
+.☘︎ ݁ sometimes i may take too long to respond and it most probably is because i am asleep or at school, i study at night time (6pm to 11pm) **i always also seem to talk a lot most of the time and sometimes i might go on very long rants about stuff no one cares about, i am very sorry if that bothers you and i will stop if you need me to, dont be scared to confront me about something that bothers you** 🤓🤓 — you can add me on discord, too! **katanabro__** is my user, i will accept all friend reqs!  **ty for reading! i hope we can be friends!!** ☝️☝️💤💤💤💤
